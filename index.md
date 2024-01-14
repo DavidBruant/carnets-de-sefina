@@ -26,6 +26,7 @@ La nuit nous a rattrapé, mais près d'un bateau, j'ai cru entendre un bruit de 
 
 Dr Sinha s'est occupée de Chuck et Lola. Chuck se remet lentement, Lola est toujours inconsciente 
 
+
 ### 17 novembre
 
 Au réveil du 14, le camp a été attaqué par des créatures
@@ -49,8 +50,23 @@ Moi, j'ai plutôt envie de rentrer. Et en même temps, je suis intriguée. Kensl
 
 Dans l'après-midi d'hier, nous sommes allé exploré les environs avec Chuck et Roald. On a trouvé un bon chemin vers un sommet.
 
-Hier soir, j'ai papoté avec Amy Kensler. Elle ne s'arrête jamais, la passion de la science. Elle m'a raconté un peu ses recherches. Même dans la fuite, elle a réussi à extraire un morceau de créature pour l'étudier. Elle a fait une blague sur le fait que ces créatures seraient fascinantes si elles n'essayaient pas de nous tuer. Elle a ri seule
+Hier soir, j'ai papoté avec Amy Kensler. Elle ne s'arrête jamais, la passion de la science ! Elle m'a raconté un peu ses recherches. Même dans la fuite, elle a réussi à extraire un morceau de créature pour l'étudier. Elle a fait une blague sur le fait que ces créatures seraient fascinantes si elles n'essayaient pas de nous tuer. Elle a ri seule
 
 Avant de me coucher, j'ai rejoint Cookie près du feu. Il m'a raconté des histoires de la première guerre mondiale. Un enfer... qui m'a fait oublié un instant l'enfer dans lequel on est maintenant. Il est un peu rustre, mais il a un bon fond. C'est rassurant de l'avoir à nos côtés
 
 Demain, on grimpe une montagne pour retrouver la cité mystérieuse que Dyer et Danforth avaient trouvés lors de leur première expédition (Danforth y a laissé un peu de sa santé mentale...) 
+
+
+### 19 novembre
+
+L'escalade était laborieuse
+Le froid nous a surpris et j'ai pris cher, je ne m'en suis pas encore remise. Je vais aller voir Dr Sinha quand elle aura fini de s'occuper des autres
+
+Un coup il fait beau, un coup, on prend une tempête dans la tronche
+
+L'escalade a surtout été mortelle pour Amy. Encore l'espèce de gros piaf tout noir qui est venu la transpercer, c'était affreux !
+On perd notre cheffe d'expédition, ça met tout le monde en tension. Ça s'engueule de tous les côtés. Des mélanges de tristesses, de colère, de peur, de désespoir chez tout le monde à divers degrés. Danforth garde son calme, comme s'il savait déjà
+
+J'ai éclaté le piaf avec de la dynamite. Je savais bien que ça nous serait utile !
+
+Au sommet, on pouvait voir en contre-bas la Cité dont Dyer avait parlé. Toute faite d'ardoise et d'une pierre noire. Je n'en ai parlé à personne, mais... je la reconnais. enfin... je crois. Je l'ai peinte, j'y suis déjà allé... depuis ma peinture 
