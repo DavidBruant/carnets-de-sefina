@@ -70,3 +70,25 @@ On perd notre cheffe d'expédition, ça met tout le monde en tension. Ça s'engu
 J'ai éclaté le piaf avec de la dynamite. Je savais bien que ça nous serait utile !
 
 Au sommet, on pouvait voir en contre-bas la Cité dont Dyer avait parlé. Toute faite d'ardoise et d'une pierre noire. Je n'en ai parlé à personne, mais... je la reconnais. enfin... je crois. Je l'ai peinte, j'y suis déjà allé... depuis ma peinture 
+
+
+### 22 novembre
+
+Nous avons pris du temps pour panser nos blessures, pour pleurer nos disparu.e.s, entre le sommet et la cité
+
+J'ai demandé quelques affaire à Takada qui m'a parlé comme à de la merde. on n'est pas obligées de s'aimer, mais pas obligé non plus de mal se traiter
+
+Dyer m'a aidé à faire sens de ce qui nous arrive. Les cauchemars, les conflits, les hallucinations diverses suite aux cris des créatures "li-li" (c'est le cri qu'elles font).
+
+Lola s'est réveillée, ça fait du bien de retrouver une amie. Comme Chuck, elle veut participer dès son réveil. Oh well... toute l'aide est la bienvenue !
+
+
+### 23 novembre
+
+Nous sommes entrées dans la Cité. Et j'ai ouvert le chemin, parce que je suis la plus... débrouillarde du groupe. Entre les bourrins et les scientifiques, ça manque parfois un peu de ruse. J'y suis allé avec Lola, Eliyah et Anyu
+
+La Cité a une structure bizarre, on a cherché l'entrée vers le tunnel longtemps. Évidemment, on s'est fait poursuivre. Dans un moment de panique, j'ai laissé tombé la dynamite. Quelle cloche !
+Alors, on a fait une grosse partie de cache-cache. Explorer, courir, se cacher, faire diversion. On a surtout beaucoup couru. Anyu est increvable !
+La Cité contenait pas mal de plans, cartes du sol, du sous-sol, du ciel, notamment une "carte météo" qui devrait nous permettre de mieux anticiper les tempêtes de neige. C'est toujours ça de gagné ! C'est beaucoup Lola qui a eu l'œil
+
+La journée a été éprouvante, alors nous faisons une pause dans le tunnel avant de continuer 
