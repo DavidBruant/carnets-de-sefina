@@ -92,3 +92,8 @@ Alors, on a fait une grosse partie de cache-cache. Explorer, courir, se cacher, 
 La Cité contenait pas mal de plans, cartes du sol, du sous-sol, du ciel, notamment une "carte météo" qui devrait nous permettre de mieux anticiper les tempêtes de neige. C'est toujours ça de gagné ! C'est beaucoup Lola qui a eu l'œil
 
 La journée a été éprouvante, alors nous faisons une pause dans le tunnel avant de continuer 
+
+
+### 24 novembre
+
+Quelle nuit étrange 
