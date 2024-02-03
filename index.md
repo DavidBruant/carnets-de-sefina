@@ -37,7 +37,7 @@ Le chemin vers le bateau abandonné était assez loin de la caverne, mais on a r
 Une partie des créatures nous a suivi et donc une partie du temps a été une grosse partie de cache-cache dans les montagnes (et Cookie était prêt avec son pistolet si un monstre s'approchait de trop)
 Même de loin, ils font peur ! Ou plutôt, ils inspirent la peur...
 
-Avec Chuck, nous avons utilisé nos talents d'éclaireur.euse.s pour retourner au camp installé, tenter une dernière fois de voir s'ils accepteraient de nous aider. Et ça a été le cas. Ptèt mes talents pour convaincre, ptèt le patriarcat et le fait d'être accompagné par deux bonhommes...
+Avec Chuck, nous avons utilisé nos talents d'éclaireur.euse.s pour retourner au camp installé, tenter une dernière fois de voir s'ils accepteraient de nous aider. Et ça a été le cas ! Ptèt mes talents pour convaincre, ptèt le patriarcat et le fait d'être accompagné par deux bonhommes...
 Anyway, ils nous ont filé de la dynamite ! Ça sera sûrement utile pour se frayer un chemin dans les montagnes... ou s'occuper des créatures cauchemardesques !
 
 ---
@@ -91,9 +91,27 @@ La Cité a une structure bizarre, on a cherché l'entrée vers le tunnel longtem
 Alors, on a fait une grosse partie de cache-cache. Explorer, courir, se cacher, faire diversion. On a surtout beaucoup couru. Anyu est increvable !
 La Cité contenait pas mal de plans, cartes du sol, du sous-sol, du ciel, notamment une "carte météo" qui devrait nous permettre de mieux anticiper les tempêtes de neige. C'est toujours ça de gagné ! C'est beaucoup Lola qui a eu l'œil
 
+Danforth est parti. À un moment, il s'est mis à parler sans sens. Tout le monde a compris dans son regard qu'il n'était plus avec nous. Personne n'a essayé de le retenir, de le convaincre, comme si tout le monde avait accepté sa "décision" d'abandonner, de suivre la folie plutôt que le groupe
+
 La journée a été éprouvante, alors nous faisons une pause dans le tunnel avant de continuer 
 
 
-### 24 novembre
+### 24 novembre - matin
 
-Quelle nuit étrange 
+Quelle nuit étrange...
+
+J'ai fait un rêve. Ou ptèt que c'était pas un rêve. J'ai vu Avery, mais j'ai vu des scènes de son passé. Trop précises pour que ça soit un rêve, mais il est mort. La même avec Amy. Je l'ai vue dans son bureau à l'Université
+
+J'ai vu aussi le Dr Sinha dans l'infirmerie, le premier patient qu'elle a perdu. Nous avons littéralement vaincu son traumatisme qui avait pris littéralement la forme d'un monstre (quelle métaphore en carton...)
+Dans ce rêve interminable, j'ai vu Dyer et des moments de l'expédition précédente. Et son traumatisme a pris aussi la forme d'un monstre (!) à combattre. Évidemment, y'avait de la dynamite dans mon rêve. Le comique de répétition...
+
+Cette nuit, c'était une journée après la journée !
+
+mais ce matin, quelque chose a changé dans le regard du Dr Sinha et de Dyer. Une détermination renouvelée
+
+pour moi aussi...\
+je me suis levée avec l'envie de quitter ce froid\
+une autre vie m'attend ailleurs\
+il est temps de percer les mystères de cette Cité, des créatures, de mettre fin aux menaces qui nous poursuivent\
+et de partir\
+retrouver un chez moi 
