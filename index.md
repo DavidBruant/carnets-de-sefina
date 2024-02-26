@@ -115,3 +115,22 @@ une autre vie m'attend ailleurs\
 il est temps de percer les mystères de cette Cité, des créatures, de mettre fin aux menaces qui nous poursuivent\
 et de partir\
 retrouver un chez moi 
+
+
+### 28 novembre
+
+Enfin de retour...
+
+Il y a eu l'histoire des sceaux avec les symboles bizarres, j'ai pas compris grand chose, mais j'en ai récolté trois\
+Et puis le grosse porte s'est fermée et puis les monstres-brumes-cauchemar bizarres sont apparus. Nous nous sommes mis en tête de faire écrouler la structure pour que ces créatures ne s'échappent pas
+
+Nous avons cassé 3 pylônes sur 5 et nous nous sommes échappés pour en réchapper *in extremis*
+
+Le reste est flou
+
+Une partie de l'équipage nous a secouru en avion
+
+Je dors mal, je ressens encore le froid alors que je ne suis plus là-bas\
+J'ai peur que la créature nous retrouve
+
+J'ai gardé la radio. Je pourrai toujours contacter les survivant.e.s, garder le contact... 
