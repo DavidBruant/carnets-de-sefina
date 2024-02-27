@@ -124,7 +124,7 @@ Enfin de retour...
 Il y a eu l'histoire des sceaux avec les symboles bizarres, j'ai pas compris grand chose, mais j'en ai récolté trois\
 Et puis le grosse porte s'est fermée et puis les monstres-brumes-cauchemar bizarres sont apparus. Nous nous sommes mis en tête de faire écrouler la structure pour que ces créatures ne s'échappent pas
 
-Nous avons cassé 3 pylônes sur 5 et nous nous sommes échappés pour en réchapper *in extremis*
+Nous avons cassé 3 pylônes sur les 5 et nous nous sommes échappées *in extremis*
 
 Le reste est flou
 
@@ -132,5 +132,7 @@ Une partie de l'équipage nous a secouru en avion
 
 Je dors mal, je ressens encore le froid alors que je ne suis plus là-bas\
 J'ai peur que la créature nous retrouve
+
+mais je ne suis plus seule
 
 J'ai gardé la radio. Je pourrai toujours contacter les survivant.e.s, garder le contact... 
